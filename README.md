@@ -1,1 +1,0 @@
-# MoneyMess-Whitepaper
